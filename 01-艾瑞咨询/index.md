@@ -1,22 +1,22 @@
-±àºÅ|±¨¸æÃû³Æ | °Ù¶ÈÔÆÅÌÁ´½Ó|ÌáÈ¡Âë|°¢ÀïÔÆÅÌÁ´½Ó|ÌáÈ¡Âë
-1|Flash Boys.pdf|https://pan.baidu.com/s/1QVgyVwzVHmEP4t572aEyUQ|ea81|https://www.aliyundrive.com/s/KpAMDUHeM56|9e65
-2|[Á¿»¯] ´ò¿ªÁ¿»¯Í¶×ÊµÄºÚÏä.pdf|https://pan.baidu.com/s/10sm4LI_-3j0fzxUxqWQ68Q|56ef|https://www.aliyundrive.com/s/DfY59n9MmME|963f
-3|Ò»¸ö¶Ô³å»ù½ğ¾­ÀíµÄÈÕ¼Ç-13053293.pdf|https://pan.baidu.com/s/1OLBwWhR9x8P_cORQk5ZRfw|0620|https://www.aliyundrive.com/s/4rKmRrb7EhE|4707
-4|ºêÔ´£º½ğÈÚ¹¤³ÌÎå£ºÊĞ³¡ÖĞĞÔÓë¶Ô³å»ù½ğ.pdf|https://pan.baidu.com/s/1uSXuijmO5hKXl1UdG4bJKA|db1e|https://www.aliyundrive.com/s/ukupJ1D3B8d|0a17
-5|¶Ô³å»ù½ğ¶¥¼â½»Ò×ÈË²ÙÅÌ°¸Àı(1).pdf|https://pan.baidu.com/s/1lxeWENDBQNdh16AM6XY-sw|7126|https://www.aliyundrive.com/s/9FphQ1Z317z|c51c
-6|·çÏÕ¶Ô³å²ßÂÔÓëÌ×Àû¼¼ÇÉ¡ª¡ªÖ¤È¯Í¶×Ê»ù½ğÓë¶Ô³å»ù½ğµÄ²ßÂÔ±È½Ï.pdf|https://pan.baidu.com/s/1VB88K8n986vqcbpLiFIxAw|d9ed|https://www.aliyundrive.com/s/sedjrBKD3uh|86eb
-7|MGI-Power-of-Parity_Exec-Summary_CN.pdf|https://pan.baidu.com/s/190sg_yqg--P_7VkMgSm4jw|b424|https://www.aliyundrive.com/s/8ML1Gkw4tXe|1960
-8|Why its still a world of grow or go.pdf|https://pan.baidu.com/s/1P3saqXWciemQGTMZ-urlcw|e113|https://www.aliyundrive.com/s/RjEx4f21WNZ|85d8
-9|¸ßĞ§¼ÇÒäÊõ¿¨ƒÈ»ù¡¢´óÇ°ÑĞÒ»¡¢BCG¶¼ÔÚÊ¹ÓÃ.pdf|https://pan.baidu.com/s/1QbJGXGn7O9seapxJYYujRQ|0b77|https://www.aliyundrive.com/s/6oi33pnYhhC|d7d2
-10|£¨¹úÃùÍ¶×ÊËïÅàÔ´Í¶ĞĞÆª£©¾¡Ö°µ÷²é°×Æ¤Êé[¾­µä].pdf|https://pan.baidu.com/s/1_b_lijed6adW5KjRzpZ0pw|0635|https://www.aliyundrive.com/s/r2LSPASPG2b|3b3b
-11|001 Í¶×ÊÒøĞĞ²¢¹ºÒµÎñ ÍõÃ÷·ò.pdf|https://pan.baidu.com/s/1blsRYqzk2qM-JQcyDdGzFA|eca8|https://www.aliyundrive.com/s/jC9V7P5XBW8|b4b5
-12|1929Äê´ó±ÀÅÌ.pdf|||https://www.aliyundrive.com/s/DUQYqtTWNSt|1328
-13|CFAÒ»¼¶ÖªÊ¶¿ò¼ÜÍ¼10ÃÅ¿ÆÄ¿ºÏ¼¯.pdf|https://pan.baidu.com/s/1Jtaca8acneq1GR3u7sFsUA|c448|https://www.aliyundrive.com/s/ZmQTYuwaV3D|618a
-14|CFAÒ»¼¶ÖªÊ¶¿ò¼ÜÍ¼ºÏ¼¯£¨6ÃÅ¿ÆÄ¿£©.pdf|https://pan.baidu.com/s/1UMmlDUVtmEr5dFS-NO91Tw|1e6f|https://www.aliyundrive.com/s/QPb8eDNRiKq|301c
-15|[¹öÑ©Çò£º°Í·ÆÌØºÍËûµÄ²Æ¸»ÈËÉú].The.Snowball.Warren.Buffett.and.the.Business.of.Life.pdf|https://pan.baidu.com/s/1lTYnlpca_6YIuBANiBvNug|90d7|https://www.aliyundrive.com/s/rsbsRBpJzan|1436
-16|ÖĞ¹úP2P½è´û·şÎñĞĞÒµ°×Æ¤Êé.pdf|https://pan.baidu.com/s/1lad0f5hHg9v9QU6DsctD8w|d21b|https://www.aliyundrive.com/s/ytceAqesmTq|0795
-17|½»Ò×¹Ú¾ü.pdf|https://pan.baidu.com/s/1cUzP8d2XwITryWkiyXQe7w|8612|https://www.aliyundrive.com/s/zqTXshiBfum|62db
-18|½»Ò×Ô±¡¢Ç¹ºÍ³®Æ±.pdf|https://pan.baidu.com/s/1wFqzhqDEgJXjC58YUBPlEw|d83d||
-19|¿ËÂŞÌ¸Í¶×Ê²ßÂÔ.pdf|https://pan.baidu.com/s/1qlBOgAadMsB3MpTYx8A_Mw|d2bc|https://www.aliyundrive.com/s/tmZrMcJowHn|b752
-20|»ª¶û½Ö50Äê.pdf|https://pan.baidu.com/s/1oCFWqSWeP0eJ_GulAP8e5w|a02c|https://www.aliyundrive.com/s/ueg5WHrsRoA|ad17
+ç¼–å·|æŠ¥å‘Šåç§° | ç™¾åº¦äº‘ç›˜é“¾æ¥|æå–ç |é˜¿é‡Œäº‘ç›˜é“¾æ¥|æå–ç   
+1|Flash Boys.pdf|https://pan.baidu.com/s/1QVgyVwzVHmEP4t572aEyUQ|ea81|https://www.aliyundrive.com/s/KpAMDUHeM56|9e65</br>
+2|[é‡åŒ–] æ‰“å¼€é‡åŒ–æŠ•èµ„çš„é»‘ç®±.pdf|https://pan.baidu.com/s/10sm4LI_-3j0fzxUxqWQ68Q|56ef|https://www.aliyundrive.com/s/DfY59n9MmME|963f</br>
+3|ä¸€ä¸ªå¯¹å†²åŸºé‡‘ç»ç†çš„æ—¥è®°-13053293.pdf|https://pan.baidu.com/s/1OLBwWhR9x8P_cORQk5ZRfw|0620|https://www.aliyundrive.com/s/4rKmRrb7EhE|4707</br>
+4|å®æºï¼šé‡‘èå·¥ç¨‹äº”ï¼šå¸‚åœºä¸­æ€§ä¸å¯¹å†²åŸºé‡‘.pdf|https://pan.baidu.com/s/1uSXuijmO5hKXl1UdG4bJKA|db1e|https://www.aliyundrive.com/s/ukupJ1D3B8d|0a17</br>
+5|å¯¹å†²åŸºé‡‘é¡¶å°–äº¤æ˜“äººæ“ç›˜æ¡ˆä¾‹(1).pdf|https://pan.baidu.com/s/1lxeWENDBQNdh16AM6XY-sw|7126|https://www.aliyundrive.com/s/9FphQ1Z317z|c51c</br>
+6|é£é™©å¯¹å†²ç­–ç•¥ä¸å¥—åˆ©æŠ€å·§â€”â€”è¯åˆ¸æŠ•èµ„åŸºé‡‘ä¸å¯¹å†²åŸºé‡‘çš„ç­–ç•¥æ¯”è¾ƒ.pdf|https://pan.baidu.com/s/1VB88K8n986vqcbpLiFIxAw|d9ed|https://www.aliyundrive.com/s/sedjrBKD3uh|86eb</br>
+7|MGI-Power-of-Parity_Exec-Summary_CN.pdf|https://pan.baidu.com/s/190sg_yqg--P_7VkMgSm4jw|b424|https://www.aliyundrive.com/s/8ML1Gkw4tXe|1960</br>
+8|Why its still a world of grow or go.pdf|https://pan.baidu.com/s/1P3saqXWciemQGTMZ-urlcw|e113|https://www.aliyundrive.com/s/RjEx4f21WNZ|85d8</br>
+9|é«˜æ•ˆè®°å¿†æœ¯å¡å…§åŸºã€å¤§å‰ç ”ä¸€ã€BCGéƒ½åœ¨ä½¿ç”¨.pdf|https://pan.baidu.com/s/1QbJGXGn7O9seapxJYYujRQ|0b77|https://www.aliyundrive.com/s/6oi33pnYhhC|d7d2</br>
+10|ï¼ˆå›½é¸£æŠ•èµ„å­™åŸ¹æºæŠ•è¡Œç¯‡ï¼‰å°½èŒè°ƒæŸ¥ç™½çš®ä¹¦[ç»å…¸].pdf|https://pan.baidu.com/s/1_b_lijed6adW5KjRzpZ0pw|0635|https://www.aliyundrive.com/s/r2LSPASPG2b|3b3b</br>
+11|001 æŠ•èµ„é“¶è¡Œå¹¶è´­ä¸šåŠ¡ ç‹æ˜å¤«.pdf|https://pan.baidu.com/s/1blsRYqzk2qM-JQcyDdGzFA|eca8|https://www.aliyundrive.com/s/jC9V7P5XBW8|b4b5</br>
+12|1929å¹´å¤§å´©ç›˜.pdf|||https://www.aliyundrive.com/s/DUQYqtTWNSt|1328</br>
+13|CFAä¸€çº§çŸ¥è¯†æ¡†æ¶å›¾10é—¨ç§‘ç›®åˆé›†.pdf|https://pan.baidu.com/s/1Jtaca8acneq1GR3u7sFsUA|c448|https://www.aliyundrive.com/s/ZmQTYuwaV3D|618a</br>
+14|CFAä¸€çº§çŸ¥è¯†æ¡†æ¶å›¾åˆé›†ï¼ˆ6é—¨ç§‘ç›®ï¼‰.pdf|https://pan.baidu.com/s/1UMmlDUVtmEr5dFS-NO91Tw|1e6f|https://www.aliyundrive.com/s/QPb8eDNRiKq|301c</br>
+15|[æ»šé›ªçƒï¼šå·´è²ç‰¹å’Œä»–çš„è´¢å¯Œäººç”Ÿ].The.Snowball.Warren.Buffett.and.the.Business.of.Life.pdf|https://pan.baidu.com/s/1lTYnlpca_6YIuBANiBvNug|90d7|https://www.aliyundrive.com/s/rsbsRBpJzan|1436</br>
+16|ä¸­å›½P2På€Ÿè´·æœåŠ¡è¡Œä¸šç™½çš®ä¹¦.pdf|https://pan.baidu.com/s/1lad0f5hHg9v9QU6DsctD8w|d21b|https://www.aliyundrive.com/s/ytceAqesmTq|0795</br>
+17|äº¤æ˜“å† å†›.pdf|https://pan.baidu.com/s/1cUzP8d2XwITryWkiyXQe7w|8612|https://www.aliyundrive.com/s/zqTXshiBfum|62db</br>
+18|äº¤æ˜“å‘˜ã€æªå’Œé’ç¥¨.pdf|https://pan.baidu.com/s/1wFqzhqDEgJXjC58YUBPlEw|d83d||</br>
+19|å…‹ç½—è°ˆæŠ•èµ„ç­–ç•¥.pdf|https://pan.baidu.com/s/1qlBOgAadMsB3MpTYx8A_Mw|d2bc|https://www.aliyundrive.com/s/tmZrMcJowHn|b752</br>
+20|åå°”è¡—50å¹´.pdf|https://pan.baidu.com/s/1oCFWqSWeP0eJ_GulAP8e5w|a02c|https://www.aliyundrive.com/s/ueg5WHrsRoA|ad17</br>
 
